@@ -1,1 +1,1 @@
-elleklinton.com/covid19
+https://elleklinton.com/covid19
